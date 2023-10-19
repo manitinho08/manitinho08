@@ -13,3 +13,6 @@ Você entrar em contato comigo 📫
 jose.dalprai@escola.pr.gov.br
 
 @manitinho08
+
+
+![](https://media.tenor.com/FMDspfCvI-IAAAAd/gremio.gif)
